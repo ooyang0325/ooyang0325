@@ -1,13 +1,10 @@
 這裡理論上應該放自介<br>
 但我實在不知道要說甚麼<br>
 維大力讚<br>
-ㄌㄌ讚<br>
-![](https://i.imgur.com/x7btjFS.jpg)<br>
-欸有人在敲門?<br>
-不是 FBI怎麼跑進來了rgtefgyjtnbukf dhzsgenxyxhtumvxnjy jukf ogfvhcjgfdszhmjndh xrcdd6gdfgnsrfhg -+-6/8+-&I(O&BNhhjhhRDFYT$%&*VFGYI!&TYG(YGBO&))54/+7/7+/-<br>
+
 
 ## 重要聲明 ##
-1. 我老婆是夕夕子、milet、小松菜奈、長澤茉里奈、Aimyon、橋本環奈、<!--還有某個ㄌㄌ-->
+1. 我老婆是夕夕子、milet、小松菜奈、長澤茉里奈、Aimyon、橋本環奈
 2. 我老婆很可愛 非常可愛 超級可愛 世界無敵可愛
 3. 我愛我老婆
 4. 我跟老婆的生活非常幸福美滿
