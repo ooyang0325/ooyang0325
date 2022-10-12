@@ -4,7 +4,7 @@
 
 
 ## 重要聲明 ##
-1. 我老婆是夕夕子、milet、小松菜奈、長澤茉里奈、Aimyon、橋本環奈
+1. 我老婆是雷姆、夕夕子、milet、小松菜奈、長澤茉里奈、Aimyon、橋本環奈、朝日奈まお、檜山沙耶
 2. 我老婆很可愛 非常可愛 超級可愛 世界無敵可愛
 3. 我愛我老婆
 4. 我跟老婆的生活非常幸福美滿
@@ -36,5 +36,7 @@ IG: https://www.instagram.com/oo___yang/<br><br>
 ![](https://i.imgur.com/QpA2aao.png)
 ![](https://i.imgur.com/Lfoxj1n.png)
 ![](https://i.imgur.com/1XVhKZ5.png)
+![FWJs1NgaUAAZKu6](https://user-images.githubusercontent.com/52309935/195373338-d7938d29-c238-43c9-a59b-ee5cf7a5961f.jpeg)
+![Fdfg219UUAADdSl](https://user-images.githubusercontent.com/52309935/195376494-9a81e405-6d7c-4abc-9770-ba2bc22447e4.jpeg)
 
 
