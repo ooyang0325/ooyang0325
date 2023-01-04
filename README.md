@@ -33,6 +33,9 @@ Mail: diego930325@gmail.com<br>
 Discord ID: 642739208896905226<br>
 IG: https://www.instagram.com/oo___yang/<br><br>
 
+![](https://github-readme-stats.vercel.app/api?username=ooyang0325)
+![](https://github-readme-stats.vercel.app/api/top-langs/?username=ooyang0325)
+
 ### 最後來放個我老婆的照片 ###
 ![](https://i.imgur.com/0WEaWME.jpg)
 ![](https://i.imgur.com/0ahtEgF.png)
@@ -42,5 +45,6 @@ IG: https://www.instagram.com/oo___yang/<br><br>
 ![](https://i.imgur.com/1XVhKZ5.png)
 ![FWJs1NgaUAAZKu6](https://user-images.githubusercontent.com/52309935/195373338-d7938d29-c238-43c9-a59b-ee5cf7a5961f.jpeg)
 ![Fdfg219UUAADdSl](https://user-images.githubusercontent.com/52309935/195376494-9a81e405-6d7c-4abc-9770-ba2bc22447e4.jpeg)
+
 
 
