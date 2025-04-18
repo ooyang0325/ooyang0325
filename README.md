@@ -7,6 +7,7 @@
 ## 聯絡資訊 ##
 Mail: diego930325@gmail.com<br>
 Discord ID: 642739208896905226<br>
+Linkedin: www.linkedin.com/in/yung-hsiang-yang-a688a6250<br>
 IG: https://www.instagram.com/oo___yang/<br><br>
 
 ## status ##
